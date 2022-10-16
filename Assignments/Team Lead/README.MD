@@ -1,2 +1,2 @@
-**Name:** Vihitha Kota <br/>
-**Reg No.:** 2019506112
+**Name    :** Vihitha Kota <br/>
+**Reg No. :** 2019506112
